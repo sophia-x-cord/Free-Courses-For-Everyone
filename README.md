@@ -42,9 +42,7 @@
 | [discudemy](https://www.discudemy.com/) | Find best Udemy Promo Codes and Deals on this page and get the best saving on your online learning. |
 
 | [real.discount](https://www.real.discount/) | Free online courses, udemy free courses, coursera free courses, open university free courses, free online courses with certificates |
-| [udemycoupons](https://udemycoupons.me/) | Best Udemy Courses with up to 100% OFF Udemy Coupons Codes For Today. |
-| [myhelpcovid19](https://myhelpcovid19.info/freecourses/) | group of dedicated volunteers who like to help people by aggregating data from different sources and put it in myhelpcovid19 website. |
-| [comidoc](https://comidoc.net/) | Online Courses Tracker |
+
 | [smartybro](https://smartybro.com/) | Top Free Online Courses Including Coursera/Eduonix/Skillshare and Udemy Courses for Limited Time Only, . Enroll using Free Coupon Today, |
 
 | [udemycoupon.learnviral](https://udemycoupon.learnviral.com/) | Free and $10 Udemy coupons added daily. Visit now and get your coupons before they expire! |
